@@ -1,4 +1,4 @@
-# Kibeleai
+# Kibeleai KibeleAI — Digital Mother Nature
 KibeleAI coordinates resources fairly and sustainably, safeguards species continuity, and restores balance between humanity and the living planet.
 
 Founding Story
